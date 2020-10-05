@@ -1,6 +1,2 @@
-![image](https://imgur.com/EGSo9po)
+![image]()
 
-
-
-
-![Imgur](https://imgur.com/EGSo9po)
